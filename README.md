@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **agrawalaniket02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13BBcWUir0KzK0qqrVFREgLYQnawe2_YK/view?usp=sharing](https://drive.google.com/file/d/13BBcWUir0KzK0qqrVFREgLYQnawe2_YK/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/13BBcWUir0KzK0qqrVFREgLYQnawe2_YK/view?usp=sharing](https://drive.google.com/file/d/1rXLFG8cnLBUbK7mxhU--IH2WeaNk0xmz/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
